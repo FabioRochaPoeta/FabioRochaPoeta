@@ -10,3 +10,5 @@
 - 📫 How to reach me: fabiorochapoeta@gmail.com...
 - 😄 Pronouns: He
 - ⚡ Fun fact: I´m Batman
+- [My new book](https://poesia-fabio-rocha.blogspot.com/2020/07/o-budismo-e-o-tinder.html)
+- ![image](https://2.bp.blogspot.com/-DYrb66cuYqc/XxokPuEL-RI/AAAAAAABDu8/BO_JcVCzYxIGWvPS2fLyuVqKvdv7jeU3wCK4BGAYYCw/s302/capa%2Bbudismo%2Btinder.jpg)
