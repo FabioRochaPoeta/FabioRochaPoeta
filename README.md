@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<!--
 ✨ How are you? ✨
 
 - 🔭 I’m currently working on Data Science...
@@ -11,4 +10,3 @@
 - 📫 How to reach me: fabiorochapoeta@gmail.com...
 - 😄 Pronouns: He
 - ⚡ Fun fact: I´m Batman
--->
